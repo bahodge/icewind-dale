@@ -1,0 +1,1 @@
+Older looking human with greying hair and proprietor of the the [[North Look Inn]].

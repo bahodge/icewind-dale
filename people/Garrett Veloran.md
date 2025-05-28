@@ -1,0 +1,1 @@
+Husband of [[Keagan Velaran]]. Took a party to [[Kelvin's Caern]]. He was accompanied by a male goliath, a female lightfoot halfing who looked holy and a female tiefling.

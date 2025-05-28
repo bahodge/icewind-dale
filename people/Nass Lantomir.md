@@ -1,0 +1,1 @@
+A human wizard with brown hair and in her 20s. She has a white arctic weasel companion. She carries a book that is titled the [[Book of Divination]]. She looks like she is adept in magic.

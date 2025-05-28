@@ -1,0 +1,1 @@
+A tavern run by a plump grey haired woman in the town of [[Targos]].

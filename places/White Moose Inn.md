@@ -1,0 +1,1 @@
+An inn located in [[Lonelywood]] owned by the party. The deed was gained by completing the quest [[(completed) white moose menace of lonelywood]].

@@ -1,0 +1,1 @@
+Speaker of [[Bryn Shander]]

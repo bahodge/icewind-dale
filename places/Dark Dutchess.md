@@ -1,0 +1,1 @@
+Merchant ship turned pirate vessel. Led by [[Captain Bluemoon]]

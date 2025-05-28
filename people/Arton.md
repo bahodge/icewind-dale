@@ -1,0 +1,1 @@
+A shield dwarf from [[Lonelywood]]

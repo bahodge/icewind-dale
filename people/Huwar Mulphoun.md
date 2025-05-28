@@ -1,0 +1,1 @@
+Son of [[Kora Mulphoun]]. He went with some tieflings.

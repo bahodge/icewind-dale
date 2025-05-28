@@ -1,0 +1,1 @@
+Frozen lake of [[Targos]]. lots of [[knucklehead trout]] inside. [[old_bitey.png]] was pulled from this lake.

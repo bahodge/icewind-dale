@@ -1,0 +1,1 @@
+Half elf emerald enclave in [[Icewind Dale]].

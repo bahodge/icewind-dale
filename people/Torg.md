@@ -1,0 +1,1 @@
+Caravan merchant traveling between the [[Ten Towns]].

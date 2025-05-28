@@ -1,0 +1,1 @@
+Pirate town to the north of [[Neverwinter]] and south of [[Icewind Dale]]. Meeting place of our caravan to [[Icewind Dale]].

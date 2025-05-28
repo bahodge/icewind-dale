@@ -1,0 +1,1 @@
+Mountains separating the south from [[Icewind Dale]] in the north.

@@ -1,0 +1,1 @@
+Elf quartermaster of the [[Dark Dutchess]].

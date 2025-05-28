@@ -1,0 +1,1 @@
+Author we met in [[North Look Inn]]. From [[Care Koning]].

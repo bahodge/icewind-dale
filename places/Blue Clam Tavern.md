@@ -1,0 +1,1 @@
+Located on the west side of [[Termalaine]]. Run by a half orc tavern master.

@@ -1,0 +1,1 @@
+One of the [[Ten Towns]] that is very close [[Targos]].

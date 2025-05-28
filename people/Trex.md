@@ -1,0 +1,1 @@
+Speaking [[kobold]] in the [[Termalaine Mine]].

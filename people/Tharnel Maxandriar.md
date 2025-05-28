@@ -1,0 +1,1 @@
+Human speaker of [[Targos]] can be found in the town hall or the [[Luskin Arms]].

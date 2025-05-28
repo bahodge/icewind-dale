@@ -1,0 +1,1 @@
+![[map_of_ten_towns.png]]

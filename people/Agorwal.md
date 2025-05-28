@@ -1,0 +1,1 @@
+Owns the gem store in [[Termalaine]] and owner of the [[Termalaine Mine]].

@@ -1,0 +1,1 @@
+An inn in the town of [[Targos]] and home of [[Tharnel Maxandriar]].

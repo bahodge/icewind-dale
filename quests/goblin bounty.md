@@ -1,0 +1,1 @@
+We can turn in 2 goblin ears for a reward to the [[Sheriff Markham Southwell]] in [[Bryn Shander]]

@@ -1,0 +1,1 @@
+![[chawinga_pine_cone.png]]

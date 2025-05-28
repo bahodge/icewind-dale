@@ -1,0 +1,1 @@
+Old man located at the [[North Look Inn]]. Gave us the [[buried treasures]] quest.

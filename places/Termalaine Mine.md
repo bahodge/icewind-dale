@@ -1,0 +1,1 @@
+Infested with [[kobold]]s and owned by a dwarf named [[Agorwal]]. The words on the sign in front of the mine say "Kobolds Only! Henceforth this mine is under new ownership. Remove yourselves accordingly".

@@ -1,0 +1,1 @@
+Frozen northern region. Covered in darkness, the sky barely rises.

@@ -1,0 +1,1 @@
+Speaker of [[Termalaine]]. Known for being a nepo baby.

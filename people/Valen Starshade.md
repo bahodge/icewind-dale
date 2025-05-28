@@ -1,0 +1,1 @@
+[[banshee]] of [[Lonelywood]]. A follower of [[Selune]]

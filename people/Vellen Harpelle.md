@@ -1,0 +1,1 @@
+One of the Wizards that [[Nass Lantomir]] is looking for. Is adept at necromancy.

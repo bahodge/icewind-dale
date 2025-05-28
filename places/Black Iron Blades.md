@@ -1,0 +1,1 @@
+Local smith and outfitter of [[Bryn Shander]]. The shop owners are 2 shield dwarves.

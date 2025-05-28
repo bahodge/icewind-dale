@@ -1,0 +1,1 @@
+A victim of [[ten towns murders]]. Prominent glassblower and wealthy merchant.

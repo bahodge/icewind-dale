@@ -1,0 +1,1 @@
+A shadow company that is purchasing up all the land and assets throughout the [[Ten Towns]].

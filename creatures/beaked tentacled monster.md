@@ -1,0 +1,1 @@
+![[tentacled_monster_0.png]]

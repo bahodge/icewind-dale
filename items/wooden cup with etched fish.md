@@ -1,0 +1,1 @@
+a cup gathered from [[(completed) white moose menace of lonelywood]] tomb. Acts like the animal messenger spell.
