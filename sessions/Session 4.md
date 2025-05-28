@@ -1,10 +1,10 @@
-# Session 4
-
-## Notes
+## Recap
 
 - We inherited a tavern
 - We almost died to a frost druid.
 - We will find Jameski to murder him
+
+## Notes
 
 We are headed to the mountain at [[Kelvin's Caern]] using the dogs we purchased at [[Lonelywood]]. It is heavily snowing and visibility is limited. The air is colder. We are able to make it to the bottom of [[Kelvin's Caern]] but not after spending all of [[Skam]]'s bardic inspiration. We followed [[Boy]] up to the entrance of the mountain. We see two tents in the snow. There is an overturned sled. We approach and knock on the tents but they are empty. We see the dogs tied to the sled howling. There are no signs of a scuffle. We give the dogs some food and build them a shelter. We head up the mountain after [[Boy]].
 
