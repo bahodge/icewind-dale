@@ -1,0 +1,1 @@
+Member of [[Garrett Veloran]]'s expedition

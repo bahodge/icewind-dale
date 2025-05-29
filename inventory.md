@@ -11,3 +11,5 @@
 - 1 [[wooden cup with etched fish]]
 - 3 axes
 - bloodstained clothes
+- 1 potion of vitality
+- 1 potion of resistance

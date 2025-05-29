@@ -1,0 +1,1 @@
+![[ogre_zombie.png]]

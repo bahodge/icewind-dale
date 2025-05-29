@@ -1,0 +1,1 @@
+Caravan that has [[Arastra Roh]] accompanying them around the town.

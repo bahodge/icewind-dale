@@ -1,1 +1,1 @@
-Author we met in [[North Look Inn]]. From [[Care Koning]].
+Author we met in [[North Look Inn]]. From [[Caer Konig]].
