@@ -11,5 +11,9 @@ We sign a contract with [[Hlen Trollbane]] to split the reward 5 ways and she ag
 We go to the [[Luskin Arms]] in search of [[Tharnel Maxandriar]], the speaker of [[Targos]]. We learn that [[Tharnel Maxandriar]] chased the frost druids out of town and refused to sacrifice their people. We suspect that the speaker is the target.
 
 [[Skam]] come up with the idea to check the logbooks in each town to see who was in town at time of the murder. We learn from [[Sergeant Hathlen Arkora]] that someone was murdered in [[Termalaine]] with an ice dagger. We noticed that [[Torgs Caravan]] has been in all the cities during each of the murders. We learn that [[Torgs Caravan]] left only shortly after the murder in [[Termalaine]]. The caravan left with [[Garrett Veloran]] and an expedition headed to [[Kelvin's Caern]]. We also notice that the murders were happening every 14 days. We likely have approximately 10 days.
+
+There was another murder in [[Caer Dineval]] where a local fisherman was found dead with an ice knife in him.
+
+We speak with [[Avarice]] and she thinks that [[Arastra Roh]] might have been blessed by the frost druids.
 ## Reward
 - 100gp

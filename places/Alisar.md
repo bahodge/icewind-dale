@@ -1,0 +1,1 @@
+Boy cultist. From [[Caer Konig]] and his parents died. With the freezing winter he snuck into the caer at [[Caer Dineval]] and now does chores.

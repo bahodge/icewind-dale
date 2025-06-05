@@ -13,3 +13,4 @@ The orb knows of [[Netherese]] things but doesn't know where the city is. [[Prof
 
 [[Vellen Harpelle]] needs bodies to "bolster her ranks". We suggest killing all of the [[kobold]]s in the mine and using mine carts to transport the bodies. We clear out the mine and deliver a body of a tentacled monster to [[Vellen Harpelle]].
 
+We meet [[Avarice]] and show her the [[Netherese]] partial song music sheet. She says she could use it to triangulate the direction of the [[Netherese]]. She uses the music sheet to triangulate the [[Netherese]] city.

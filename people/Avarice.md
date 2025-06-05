@@ -1,1 +1,3 @@
-Albino tiefling wizard
+Albino tiefling wizard.
+
+![[avarice.png]]

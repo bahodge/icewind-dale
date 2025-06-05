@@ -1,0 +1,1 @@
+devil trapped in the ice hell. Tried to overthrow [[Azmodeus]] and was imprisoned.
