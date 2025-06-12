@@ -36,4 +36,4 @@ We head to the tavern. The [[Black Swords]] arrived under false pretenses and to
 We retake the castle and reinstate speaker [[Cranoc Siever]] and [[Avarice]] as being in charge of the [[Caer Dineval]].
 
 ### Next time
-- follow [[Torgs Caravan]] to [[Easthaven]]
+- follow [[Torg's Caravan]] to [[Easthaven]]

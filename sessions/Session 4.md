@@ -14,7 +14,7 @@ We find a cave and enter it. There is a massive [[yeti]] inside of the cave. We 
 
 We continue up the mountain and find an almost frozen tiefling at the summit of the mountain. We look south and see 2 towns on the shore of a frozen lake. The town closest to us, we can see some figures. There are some figures departing the town, walking north. On the southeast side, we see some unusual structures built into the mountain like they are made of some sort of dark stone. We pick up the tiefling and take her back into the cave to warm up. As we are headed down we see a streak of light across the sky with purple arcs coming out of the back of it. It crashes very southwest into the tundra. It crashed into the [[Spine of the World]].
 
-We harvest the 2 [[yeti]]'s. We head down the mountain and go towards [[Caer Konig]]. [[Bael]] has 3 levels of exhaustion. We arrive in town and see that [[Torgs Caravan]] is headed to [[Caer Dineval]]. They left 1 day ago. We go to the [[Frozen North Expeditions]] and it is run by a human. We can buy some dogs, sleds and other expedition gear. We head towards the [[Northern Light Inn]]. 
+We harvest the 2 [[yeti]]'s. We head down the mountain and go towards [[Caer Konig]]. [[Bael]] has 3 levels of exhaustion. We arrive in town and see that [[Torg's Caravan]] is headed to [[Caer Dineval]]. They left 1 day ago. We go to the [[Frozen North Expeditions]] and it is run by a human. We can buy some dogs, sleds and other expedition gear. We head towards the [[Northern Light Inn]]. 
 
 [[Garrett Veloran]] gives us bunch of scrimshaw art and we part ways with him.
 

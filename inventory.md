@@ -13,3 +13,6 @@
 - bloodstained clothes
 - 1 potion of vitality
 - 1 potion of resistance
+- Cask of mushroom wine
+- Map of [[duergar]] locations
+- [[duergar]] plans to steal a [[chardalyn]] bust from the town hall of [[Easthaven]]

@@ -38,5 +38,5 @@ Loot:
 [[Bael]] impales the bodies along the road to the fortress as [[Worthy]] writes "only the worthy may enter" on the fortress door. We head back to [[Caer Konig]] to turn in all the quests. We meet with [[Speaker Trovus]] and turn in the lantern and complete the quest. We are given an IOU for a [[yeti]] coat as we complete the [[Caer Konig]] quest. We are given free room and board in [[Caer Konig]]. We are given 1 cask of [[Tej Wine]]
 
 Next time
-- go to [[Caer Dineval]] and find [[Torgs Caravan]].
+- go to [[Caer Dineval]] and find [[Torg's Caravan]].
 - go [[Easthaven]] and figure out what is going on there and find the [[thieves from Easthaven]]

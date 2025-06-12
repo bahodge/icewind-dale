@@ -14,3 +14,8 @@ The orb knows of [[Netherese]] things but doesn't know where the city is. [[Prof
 [[Vellen Harpelle]] needs bodies to "bolster her ranks". We suggest killing all of the [[kobold]]s in the mine and using mine carts to transport the bodies. We clear out the mine and deliver a body of a tentacled monster to [[Vellen Harpelle]].
 
 We meet [[Avarice]] and show her the [[Netherese]] partial song music sheet. She says she could use it to triangulate the direction of the [[Netherese]]. She uses the music sheet to triangulate the [[Netherese]] city.
+
+---
+We find that [[Dazzan]] is slotted to be publicly executed. We reach the town and see that [[Dazzan]] burned at the stake by [[Captain Imdra Arlaggath]]. We think that he was wrongfully accused and killed.
+
+We learn that [[Dazzan]] said he found a strange structure in the ice. It sounds like it might have been [[Netherese]]. He apparently came back with some people who he'd paid to go out into the tundra where he found a tower buried halfway into the snow.

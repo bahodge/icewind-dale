@@ -1,0 +1,1 @@
+[[Easthaven]] bard. Performs seances

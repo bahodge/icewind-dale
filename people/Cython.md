@@ -1,0 +1,1 @@
+ Proprietor of [[Easthaven]]'s ferry service

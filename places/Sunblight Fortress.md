@@ -1,0 +1,1 @@
+A [[duergar]] fortress in the [[Spine of the World]].

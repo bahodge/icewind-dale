@@ -1,0 +1,1 @@
+A massive demonic bust that is supposed to be attached to the front of a ship. It is located in the town hall of [[Easthaven]]. [[Zardock]]'s kids are trying to steal it.
