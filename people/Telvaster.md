@@ -1,0 +1,1 @@
+Merchant in [[Easthaven]] who attacked [[Bael]] after seeing the [[psi crystal]]. Tells [[Bael]] that he is headed south to the [[Spine of the World]] to look for the comet.

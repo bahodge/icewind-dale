@@ -1,6 +1,6 @@
 We leave from [[Caer Dineval]] and head towards [[Easthaven]]. We arrive at [[Easthaven]]. We sign into the logbook and see that [[Torg's Caravan]] is in the town. We head to the center of town to see a public execution. The captain of the militia [[Captain Imdra Arlaggath]]. We learn that the criminal is likely a wizard, it might be [[Dazzan]].
 
-A crowd has gathered in front of the town hall. We see that [[Dazzan]], a human wizard, is prepped to be executed. We speak with [[Captain Imdra Arlaggath]]. The very first murder happened weeks ago. We learn that [[Dazzan]] said he found a strange structure in the ice. It sounds like it might have been [[Netherese]]. He apparently came back with some people who he'd paid to go out into the tundra where he found a tower buried halfway into the snow. She marks it on our map and marks it as east of [[Easthaven]]. We accept the quest, [[find missing fishermen]].
+A crowd has gathered in front of the town hall. We see that [[Dazzan]], a human wizard, is prepped to be executed. We speak with [[Captain Imdra Arlaggath]]. The very first murder happened weeks ago. We learn that [[Dazzan]] said he found a strange structure in the ice. It sounds like it might have been [[Netherese]]. He apparently came back with some people who he'd paid to go out into the tundra where he found a tower buried halfway into the snow. She marks it on our map and marks it as east of [[Easthaven]]. We accept the quest, [[(completed) find missing fishermen]].
 
 We head to the tavern, the [[Wet Trout]]. The owner is a [[dragonborn]], [[Niemitra]]. We learn that the [[White Lady Inn]]. We walk over and speak with [[Albira]]. We learn that [[Albira]]'s granddaughter's parents were killed by [[gnoll]]s. [[Albira]] points out some good fishing spots. She says we should go to the [[White Lady Inn]] to learn more about the [[White Lady]].
 
@@ -23,3 +23,5 @@ We head to the town hall to look at the [[chardalyn]] bust. We meet up with [[Ca
 [[Bael]] is attacked by the merchant after he sees the [[psi crystal]]. [[Bael]] chokes him out.
 
 Next Time
+- Go to [[Torg's Caravan]]
+- idfk?

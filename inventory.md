@@ -16,3 +16,5 @@
 - Cask of mushroom wine
 - Map of [[duergar]] locations
 - [[duergar]] plans to steal a [[chardalyn]] bust from the town hall of [[Easthaven]]
+- 1 [[cauldron of plenty]] from [[sea hag]]
+- 1 blood well vial.

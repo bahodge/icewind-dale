@@ -15,5 +15,7 @@ We go to the [[Luskin Arms]] in search of [[Tharnel Maxandriar]], the speaker of
 There was another murder in [[Caer Dineval]] where a local fisherman was found dead with an ice knife in him.
 
 We speak with [[Avarice]] and she thinks that [[Arastra Roh]] might have been blessed by the frost druids.
+
+We find [[Arastra Roh]] and capture him outside of [[Easthaven]]. 
 ## Reward
 - 100gp
