@@ -1,1 +1,1 @@
-A victim of [[ten towns murders]]. Prominent glassblower and wealthy merchant.
+A victim of [[(completed) ten towns murders]]. Prominent glassblower and wealthy merchant.

@@ -16,6 +16,6 @@ There was another murder in [[Caer Dineval]] where a local fisherman was found d
 
 We speak with [[Avarice]] and she thinks that [[Arastra Roh]] might have been blessed by the frost druids.
 
-We find [[Arastra Roh]] and capture him outside of [[Easthaven]]. 
+We find [[Arastra Roh]] and capture him outside of [[Easthaven]].  We turn him into [[Sheriff Markham Southwell]] and get the reward. We split the reward with [[Hlen Trollbane]].
 ## Reward
 - 100gp

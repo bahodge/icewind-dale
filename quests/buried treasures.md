@@ -2,4 +2,6 @@ We agree to buy a treasure map in exchange for 10% and 8gp from a scraggly old m
 
 We walk into the inn and a woman sees our map and calls it a flyer. Meaning that we got scammed. We lost the coupon attached to the bottom of the flyer.
 
+We return to [[Bryn Shander]] and see [[Jameski]] during a public meal. He is confronted by [[Skam]]. 
+
 New objective: Kill [[Jameski]] for scamming us.

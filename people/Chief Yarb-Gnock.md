@@ -1,0 +1,1 @@
+Chief of the [[goblin camp]]

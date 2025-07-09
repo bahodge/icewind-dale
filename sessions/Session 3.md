@@ -4,7 +4,7 @@ We learn more about the [[(completed) white moose menace of lonelywood]] and pla
 
 We head out into the woods to look for the moose. We find some [[chawinga]]s. We hear a scream in the forest. We run to the location and see the hunters who have been killed by a [[banshee]]. We try to ask her how we can help and she tells us that her tomb has been desecrated. It is somewhere in the northern part of the forest. The [[banshee]] is named [[Valen Starshade]]. We agree to help her. We start walking north and stumble across the moose tracks. We follow them and come across a tomb. We start to make a fire and are attacked by a massive moose. We kill moose and return the [[banshee]] to her tomb.
 
-We use a scrying mirror to scry on [[Garrett Veloran]] to gain more insight on the murderer. We scry on [[Torg]]. We see [[Arastra Roh]] in the mirror and they are dressed in the tunic and light clothes with icy eyes. We see [[Avarice]] in a small stone room at a desk studying and dressed in cold weather clothes. We look for [[Naerth]] and see speaker [[Tharnel Maxandriar]] speaking with a tiefling. It shounds like they are in kahoots and hatching some scheme.
+We use a scrying mirror to scry on [[Garrett Veloran]] to gain more insight on the murderer. We scry on [[Torg]]. We see [[Arastra Roh]] in the mirror and they are dressed in the tunic and light clothes with icy eyes. We see [[Avarice]] in a small stone room at a desk studying and dressed in cold weather clothes. We look for [[Naerth]] and see speaker [[Tharnel Maxandriar]] speaking with a tiefling. It sounds like they are in kahoots and hatching some scheme.
 
 We go into the last chamber and find a person. Her name is [[Ravison]]. We kill her and recover another awakened bush. 
 

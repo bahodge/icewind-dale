@@ -1,0 +1,1 @@
+[[goblin camp]] far southwest of [[Bryn Shander]].

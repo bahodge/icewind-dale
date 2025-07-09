@@ -1,1 +1,1 @@
-First murder victim of  [[ten towns murders]]. He tipped the town guard to avoid being sacrificed. Recent arrival to [[Easthaven]].
+First murder victim of  [[(completed) ten towns murders]]. He tipped the town guard to avoid being sacrificed. Recent arrival to [[Easthaven]].

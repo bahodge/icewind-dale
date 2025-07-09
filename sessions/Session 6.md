@@ -1,12 +1,12 @@
 The party has settled on the name the [[Frozen Assets]].
 
-We leave [[Caer Konig]] and head to [[Caer Dineval]] on our nice sled doggoids. The town looks very quaint. We learn the speaker is [[Cranoc Siever]]. He has been missing for a few weeks. There were robed figures who came to town and wouldn't let anyone into the castle. We decide to [[investigate the missing speaker of caer dineval]].
+We leave [[Caer Konig]] and head to [[Caer Dineval]] on our nice sled doggoids. The town looks very quaint. We learn the speaker is [[Cranoc Siever]]. He has been missing for a few weeks. There were robed figures who came to town and wouldn't let anyone into the castle. We decide to [[(completed) investigate the missing speaker of caer dineval]].
 
 There is a ruined watch tower on the south side. We look at the log book and see that [[Huwar Mulphoun]] has signed in but not signed out. We head to the tavern, [[The Uphill Climb]] to look for some room and board. We mush ahead to the tavern. We smell hot chowder and beer and sprits. There are only 2 people inside. We meet the bartender [[Roark]]. He tells us that we could go try to find a room at the Caer. We order some spirits. The robed people don't drink and haven't visited the tavern.
 
 We learn that [[Caer Dineval]] sacrifices food to the frost druids. The [[crag cat]]s will eat.
 
-We learned that there was another murder in this town. One of the local fishermen was killed. We think that it is related to the [[ten towns murders]]. We decide to talk with the speaker [[Cranoc Siever]]. We buy a bottle of spirits to gift to the speaker. 
+We learned that there was another murder in this town. One of the local fishermen was killed. We think that it is related to the [[(completed) ten towns murders]]. We decide to talk with the speaker [[Cranoc Siever]]. We buy a bottle of spirits to gift to the speaker. 
 
 We approach the caer and speak with the guards. We try talk our way into the castle. [[Murdoch]] recognizes that they are likely working with a devil [[Levistus]]. [[Murdoch]] shows them our hard [[chardalyn]] shards. They open the portcullis and let us into the caer. We surrender all of our weapons and enter the castle. We enter the courtyard. We ask to speak with the leader of the robed people called [[Kadroth]]. He is located in his office.
 

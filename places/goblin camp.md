@@ -1,0 +1,1 @@
+A camp of goblins south of [[Bryn Shander]].

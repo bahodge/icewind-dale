@@ -1,0 +1,1 @@
+person [[Karas]] is looking for. Priest of [[Lethander]]. Hardheaded and hard to change his mind.
