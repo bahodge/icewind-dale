@@ -16,3 +16,9 @@ We decide to head north towards the [[old black cabin]]. We stop in [[Termalaine
 
 The party decides to stop by the [[Termalaine Mine]] and feed some slaves and speak with [[Speaker Orus]] and ask him if we can help him retake control. [[Worthy]] tries to convince some of the guards to revolt against the speaker. We spend the night in the inn and plan the revolt. [[Skam]] disguises himself convinces all the guards that they are getting a raise and they gather in the mouth of the mine. [[Worthy]] takes the opportunity to blast all the slaver guards with fireball. We kill all the guards and begin freeing the guards. We march to the speaker's residence.
 
+[[Speaker Orus]] is put back in charge of [[Termalaine]] again.
+
+Next time
+- continue to the [[old black cabin]].
+- continue to the [[Netherese]] tower
+- continue to the [[Spine of the World]]

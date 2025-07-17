@@ -1,1 +1,1 @@
-Location of [[Macreadus]]
+Location of [[Macreadus]]. A cabin north of [[Easthaven]]. A lodge on wooden stilts.

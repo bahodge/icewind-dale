@@ -1,0 +1,1 @@
+![[ice_mephite.png]]

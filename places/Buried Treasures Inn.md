@@ -1,1 +1,1 @@
-A building at the location of the x on the [[buried treasures]]'s map.
+A building at the location of the x on the [[(completed) buried treasures]]'s map.

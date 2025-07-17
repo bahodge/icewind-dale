@@ -1,0 +1,1 @@
+Gain 10 tmp HP at dawn every day.

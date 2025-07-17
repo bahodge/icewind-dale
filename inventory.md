@@ -18,3 +18,7 @@
 - [[duergar]] plans to steal a [[chardalyn]] bust from the town hall of [[Easthaven]]
 - 1 [[cauldron of plenty]] from [[sea hag]]
 - 1 blood well vial.
+- 1 Calligrapher's supplies
+- 1 Smiths kit
+- 1 Tinker's kit
+- 4 [[Tej Wine]] barrels

@@ -1,0 +1,1 @@
+an amulet likely used to control a [[shield guardian]]

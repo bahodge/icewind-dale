@@ -1,0 +1,1 @@
+![[cold_light_walker.png]]
