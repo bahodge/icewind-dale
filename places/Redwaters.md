@@ -1,0 +1,1 @@
+Frozen lake that is mostly frozen

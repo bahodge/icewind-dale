@@ -6,7 +6,7 @@ We arrive at the town of [[Bremen]] and are pointed to the head fisherman, [[Gre
 
 We meet [[Talli]] who requests that we don't kill the monster. We ask the monster to stop scaring the fishermen. A human gave the monster the gift of speech named [[Ravison]] and that they must do their part to help the frost maiden.
 
-[[Skam]] puts a protective spell (bullshit) to help the monster retain his intelligence. We name him [[Wet BJ]]. We need to go back to [[Targos]] and turn in our quest to [[Tharnel Maxandriar]].
+[[Skam]] puts a protective spell (bullshit) to help the monster retain his intelligence. We name him [[Wet BJ]]. We need to go back to [[Targos]] and turn in our quest to [[Speaker Tharnel Maxandriar]].
 
 ![[lake_monster.png]]
 

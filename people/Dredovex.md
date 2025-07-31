@@ -1,0 +1,1 @@
+A squid gnome and co pilot of the crashed squid ship.

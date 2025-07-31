@@ -1,0 +1,1 @@
+process which turns a creature into a [[ceromorph]]

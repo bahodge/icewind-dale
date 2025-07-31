@@ -2,11 +2,11 @@
 
 We all meet up in [[Bremen]]. [[Talli]] the scientist agrees to join us and return to [[Targos]]. We go to the [[Buried Treasures Inn]] and we ask about the land being sold. [[Skam]] analyses a fisherman's contract that clearly shows they sold the land for under value. We go to the [[Bremen]] town hall in search of information on the [[Obsidian Holdings]]. They do not have any evidence in the town hall.
 
-We leave [[Bremen]] and go to [[Targos]]. We go to the town hall in search of speaker [[Tharnel Maxandriar|T]]. We inform her that the [[(completed) lake monster problem]] has been taken care of.
+We leave [[Bremen]] and go to [[Targos]]. We go to the town hall in search of speaker [[Speaker Tharnel Maxandriar|T]]. We inform her that the [[(completed) lake monster problem]] has been taken care of.
 
-We receive the reward for completing the lake monster problem. Speaker [[Tharnel Maxandriar]] says we should go to [[Termalaine]] and solve all the problems there. 
+We receive the reward for completing the lake monster problem. Speaker [[Speaker Tharnel Maxandriar]] says we should go to [[Termalaine]] and solve all the problems there. 
 
-We start the [[(completed) get the sergeant elected to power in Termalaine]] quest. We let it slip that we have a fancy gem and he seems very interested. We ask spekaer [[Tharnel Maxandriar]] about the [[Obsidian Holdings]]. He says that he doesn't really deal with that.
+We start the [[(completed) get the sergeant elected to power in Termalaine]] quest. We let it slip that we have a fancy gem and he seems very interested. We ask spekaer [[Speaker Tharnel Maxandriar]] about the [[Obsidian Holdings]]. He says that he doesn't really deal with that.
 
 We prepare to set off to [[Termalaine]] by buying some rations and some fishing gear. We head out to [[Termalaine]]. We arrive on the outskirts of the town and it is very pretty. It looks very fancy. We hear a town crier the gemstone mine is closed because of monsters and speaker [[Mashew]] is offering 50gp to clear the mine. Speaker [[Mashew]] and [[Sergeant Hathlen Arkora]] would likely be at town hall during the day. They might be at [[Blue Clam Tavern]] or [[East Side Inn]]. The [[Termalaine Mine]] is about 30 minutes up the hill.
 
