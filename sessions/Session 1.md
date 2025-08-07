@@ -11,7 +11,7 @@ Loot:
 
 The blacksmith say's that the speaker in [[Targos]] is always offering work to people. We head back to the [[North Look Inn]] and spend the night.
 
-The next day we head to the town hall in search of [[Duvessa Shane]] and [[Sheriff Markham Southwell]]. We speak to secretary and are able to gain an audience with [[Sheriff Markham Southwell]]. We report the [[goblin]] attack and the [[yeti]]. We offer to hunt down the [[goblin]]s but we are likely too weak to fight them. We also report [[(completed) ten towns murders]] that [[Hlen Trollbane]] was speaking about. He tells us that [[Dugan's Hole]] is the uncivilized town.
+The next day we head to the town hall in search of [[Speaker Duvessa Shane]] and [[Sheriff Markham Southwell]]. We speak to secretary and are able to gain an audience with [[Sheriff Markham Southwell]]. We report the [[goblin]] attack and the [[yeti]]. We offer to hunt down the [[goblin]]s but we are likely too weak to fight them. We also report [[(completed) ten towns murders]] that [[Hlen Trollbane]] was speaking about. He tells us that [[Dugan's Hole]] is the uncivilized town.
 
 We speak with [[Hlen Trollbane]] and get up to speed on [[(completed) ten towns murders]]. We learn that [[Ten Towns]] are sacrificing humans in order to appease [[Auril]] and citizens are trying to bribe their way out of the lottery. We decide to head to [[Targos]] to preempt the murder but speak with [[Nass Lantomir]] before we leave town.
 

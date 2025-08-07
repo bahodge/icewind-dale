@@ -1,1 +1,1 @@
-An agent from [[Bael]]'s backstory. Somehow related to slavers that took people from the [[Dark Dutchess]].
+An agent from [[Bael]]'s backstory. Somehow related to slavers that took people from the [[Dark Dutchess]]. Member of the[[Obsidian Holdings]]. Red tiefling.

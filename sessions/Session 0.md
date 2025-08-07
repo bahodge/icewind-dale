@@ -26,9 +26,9 @@ We eventually arrive at the gates of [[Bryn Shander]] at 3 in the afternoon. The
 
 We enter the [[North Look Inn]] and tavern and are greeted by the proprietor [[Scramsax]]. [[Nass Lantomir]] pays for our room and board. We mentioned that we were looking for work and were pointed to a group of dwarves in the tavern. The dwarves are dressed like the dead dwarves from the caravan. There is another 30 year old person writing a book in the corner. There is a scraggly old man in the corner and another man with a cute little ram.
 
-We learn that it gets dark very early. People generally eat and sleep very early because of how dark it is. Some people think [[Auril]] the god caused it. We ask if the giant white bird was and he [[Scramsax]] tells us the bird does that every night. There is likely no correlation between them. The speaker of [[Bryn Shander]] is [[Duvessa Shane]]
+We learn that it gets dark very early. People generally eat and sleep very early because of how dark it is. Some people think [[Auril]] the god caused it. We ask if the giant white bird was and he [[Scramsax]] tells us the bird does that every night. There is likely no correlation between them. The speaker of [[Bryn Shander]] is [[Speaker Duvessa Shane]]
 
-[[Bael]] speaks with [[Caska Lane]] who is writing a mystery novel about a series of murders across the [[Ten Towns]]. She says that there are some murders happening in the [[Ten Towns]]. She was talking with [[Hlen Trollbane]] who claimed there was a murder in [[Hillhaven]] and another here in [[Bryn Shander]]. [[Hlen Trollbane]] is trying to get a meeting with [[Duvessa Shane]].
+[[Bael]] speaks with [[Caska Lane]] who is writing a mystery novel about a series of murders across the [[Ten Towns]]. She says that there are some murders happening in the [[Ten Towns]]. She was talking with [[Hlen Trollbane]] who claimed there was a murder in [[Hillhaven]] and another here in [[Bryn Shander]]. [[Hlen Trollbane]] is trying to get a meeting with [[Speaker Duvessa Shane]].
 
 [[Worthy]] and [[Murdoch]] speak with [[Hruna]], [[Korex]] and [[Sthorm]] who are the dwarves that are in the inn. They inform them that their dwarven caravan was killed in the avalanche attack of the [[yeti]].  The dwarves give us the [[(completed) recover dwarf sled]] quest.
 

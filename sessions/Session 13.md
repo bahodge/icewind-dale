@@ -27,4 +27,6 @@ We head towards [[Bryn Shander]] to check in on [[Arastra Roh]]. He is fine.
 
 We head to [[Targos]] to confront [[Speaker Tharnel Maxandriar]] about the slaves and [[Obsidian Holdings]]. We head to the town hall.
 
-We kill the guards as they are loyal to [[Naerth]]. We head upstairs and find [[Speaker Tharnel Maxandriar]] and [[Naerth]] speaking to each other.
+We kill the guards as they are loyal to [[Naerth]]. We head upstairs and find [[Speaker Tharnel Maxandriar]] and [[Naerth]] speaking to each other. [[Naerth]] runs away. [[Speaker Tharnel Maxandriar]] says he is just a figurehead and [[Naerth]] is in charge.
+
+We go to the warf and we get into combat with [[Naerth]] and his guards. We didn't finish combat.
