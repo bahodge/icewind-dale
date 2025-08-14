@@ -1,0 +1,1 @@
+does psychic damage when touched

@@ -22,3 +22,4 @@
 - 1 Smiths kit
 - 1 Tinker's kit
 - 4 [[Tej Wine]] barrels
+- [[naked dwarven flame statuette]] - does psychic damage when touched.
