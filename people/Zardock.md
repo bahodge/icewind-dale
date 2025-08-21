@@ -1,1 +1,3 @@
-Leader of the [[duergar]]
+Leader of the [[duergar]] at [[Sunblight Fortress]]
+
+![[zardok.png]]
