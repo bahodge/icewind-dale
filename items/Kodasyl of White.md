@@ -1,0 +1,1 @@
+Something controlled by [[Auril]] that she uses to grant people power over ice.

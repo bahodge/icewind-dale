@@ -1,0 +1,1 @@
+Steven forgot his laptop so I have no notes for this session
