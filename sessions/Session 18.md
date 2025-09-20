@@ -45,3 +45,4 @@ Next Time
 - Kill everyone
 - Unite the clans by killing the white dragon
 - Abandon and go for land locked ship by [[Revell's End]]
+- Lure the dragon to kill both clans
