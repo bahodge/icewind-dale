@@ -1,0 +1,1 @@
+Jarl of Jarls. Would use a horn of blasting to summon dragons.

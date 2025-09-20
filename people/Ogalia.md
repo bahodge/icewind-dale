@@ -1,1 +1,1 @@
-Leader of the [[Thuunlakalaga]] clan.
+Leader of the [[Thuunlakalaga]] clan. Has scars from when the hippogryph scratched her face. 

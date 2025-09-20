@@ -1,0 +1,1 @@
+Location of [[Arceus]]'s tribe.
