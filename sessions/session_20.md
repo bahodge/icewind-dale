@@ -40,4 +40,4 @@ There is a message in dwarvish "grimscale".
 
 Next time:
 - Go in abode
-- Murder Arch Druid
+- Murder [[Arch Druid Shandra]]
